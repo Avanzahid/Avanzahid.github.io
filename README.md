@@ -1,1 +1,0 @@
-# Avanzahid.github.io
